@@ -2,5 +2,5 @@
 
 - 🔭 I'm currently vice president of Bisontech 
 - 💬 Ask me about anything, I'm happy to help 
-- 😄 Pronouns: she/her
+- ✨ Pronouns: she/her
 - ⚡ Fun fact: I'm a triplet
